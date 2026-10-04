@@ -8,5 +8,5 @@ I enjoy programming because I like solving problems, understanding how things wo
 
 Email: **alimnfll@gmail.com**
 
-<h3 align="left">Click this emoji to connect: <a href="https://www.linkedin.com/in/alimnfl" target="blank" style="cursor:pointer;">🧏‍♂️</a></h3> 
+Connect: <a href="https://www.linkedin.com/in/alimnfl" target="blank" style="cursor:pointer;">🧏‍♂️</a>
 
